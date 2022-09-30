@@ -1,0 +1,2 @@
+--Hey im working on blooket hacks for people at school so they can win every time--
+--Lmk what I should add
